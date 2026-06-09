@@ -1,0 +1,1 @@
+# church-one-page-template
